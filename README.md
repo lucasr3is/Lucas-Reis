@@ -9,16 +9,18 @@
 **<br>Antes de mais nada é importante deixar uma coisa bem clara: é um filme de sobre um vilão. Não tem meio termo pra isso. É um filme sobre como um ser humano se tornou um dos vilões mais cruéis da história do mundo dos quadrinhos.**
  **<br>“Coringa” tem muito das tragédias gregas. Você vê toda aquela trama se montar sabendo que em algum momento todas aquelas consequências vão estourar, a tragédia acontecerá.**
   
-  ## > *Aliados do Coringa*
+  > ##  *Aliados do Coringa*
   + *Alerquina♥️*
   + *Charada❓*
   + *Duas-Caras🎭*
+  + *Pinguim:penguin:*
   
-  ## > *Inimigos do Coringa*
+  > ##  *Inimigos do Coringa*
     
    1. *Batman🦇*
    2. *Robin®️*
    3. *Mulher-Gata😺*
+   4. *Batgirl🦇*
     
     
    <h3>CASO A IMAGEM NÃO ABRA: ![Joker](https://user-images.githubusercontent.com/84356920/120253626-3d887700-c25e-11eb-9c75-be053cf66c34.jpg)</h3>
